@@ -60,7 +60,7 @@
 ## 🤝 Connect With Me
 
 - 💼 LinkedIn: [https://linkedin.com/in/ayush-sharma-21448b129](https://www.linkedin.com/in/ayush-sharma-21448b129/)
-- 📧 Email: ayush89able@gmail.com
+- 📧 Email: ayushsharma89it@gmail.com
 ---
 
 ## ⚡ Fun Fact
